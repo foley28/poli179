@@ -1,4 +1,2 @@
 # poli179
-Gabe
-I am editing wheeeeeeeeee!!!
-Bruhhh... when pushing the pawns doesnt work
+we were having some issues with data, we will add things soon lol
